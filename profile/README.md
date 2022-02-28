@@ -8,6 +8,8 @@
 
 ## member
 
-### MetMartinez
-
+### MetMartinez (所長)
 にゃう
+
+### Akirtn (清掃員)
+ほむほむ  
