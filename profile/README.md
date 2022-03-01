@@ -17,5 +17,5 @@
 ### tenzen (研究補助員)
 んなぁ〜
 
-### t4t5u0 (雑用)
+### [t4t5u0](https://twitter.com/i4mwh4ti4m) (雑用)
 ぷえ〜
