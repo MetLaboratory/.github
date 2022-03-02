@@ -28,3 +28,6 @@
 
 ### Siberiy4 (居候)
 (%_%)
+
+### [Ri-ma](https://twitter.com/strimuer213p) (パシリ)
+俺、焼きそばパン買って来るよ
