@@ -31,3 +31,6 @@
 
 ### [Ri-ma](https://twitter.com/strimuer213p) (バイト)
 みょん
+
+### cordx56（[技師長](https://twitter.com/ZQ875328/status/1499726580788375555)）
+たゃ
