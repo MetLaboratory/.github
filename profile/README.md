@@ -34,3 +34,6 @@
 
 ### cordx56（[技師長](https://twitter.com/ZQ875328/status/1499726580788375555)）
 たゃ
+
+### [0uts1de](https://twitter.com/0uts1de_c) (戦車兵)
+ねこ
