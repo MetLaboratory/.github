@@ -14,7 +14,7 @@
 ### MetMartinez (所長)
 にゃう
 
-### Akirtn (清掃員)
+### [A.A](https://twitter.com/fapo667) (清掃員)
 ほむほむ  
 
 ### tenzen (研究補助員)
