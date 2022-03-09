@@ -40,3 +40,6 @@
 
 ### [futanyaha](https://twitter.com/futanyaha) (ねこ)
 meow
+
+### [quansys](https://twitter.com/colo_num) (腹痛係)
+ｫ…ｱｧ…
